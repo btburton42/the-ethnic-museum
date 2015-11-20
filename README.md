@@ -16,6 +16,8 @@ Let’s, instead, greet him at work, forgetting all about the dog poo incident. 
 
 
 
+-> Six Months Later
+
 He made it to the museum doors a few minutes after nine. He was pleased to see the light inside, as that meant that Raina was already there and he wouldn’t have to scold her for being late. Across the way, at the recently opened Starbucks, a few whites hung around outside with the looks of buzzards circling some invisible carrion. Ledron sneered into the glass at them and thought about what Jimmy Freed had said. “They might be paying customers.” Yes, true, they might, he thought. For his boss’ sake, and the sake of the museum’s struggling treasury, he would never refuse their ten dollars admission, but also neither would he ever advertise upon the “Community Board” that Freed had said was put up inside with some colored paper flyer. They must come to him. Yes, that must be the way it would happen.
 “Good morning, Dr. Akumbe,” Raina greeted him. She was short, about five-foot-six, and the counter that he’d had built to accommodate his six foot stature perfectly made her look even shorter still. 
 “Good morning, Raina,” Ledron said, as pleasantly as he could. “Has there been any correspondence?”
