@@ -3,7 +3,7 @@
 
 ####A Short Story of Madness & Reptiles
 
-*By B. Tyler Burton*
+#####*By B. Tyler Burton*
 
 
 Ledron Publitzer left his house twenty minutes late and ran no less than six full city-size blocks to reach the nearest bus stop. Rounding the corner from his block to MLK, one careless misstep plunged his shiny new loafer into a steaming pile of fairly recent dog excrement, which he discovered only after he had stood a few moments beneath the thin, three-sided shelter with its benches that must be rocked into place for one to sit comfortably, watching the departing figure of the intermittent downtown bus make its way further downtown.
