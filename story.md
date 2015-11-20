@@ -6,6 +6,10 @@
 #####*By B. Tyler Burton*
 
 
+<p class='specialParagraph' markdown='1'>
+**Another paragraph** which allows *Markdown* within it.
+</p>
+
 Ledron Publitzer left his house twenty minutes late and ran no less than six full city-size blocks to reach the nearest bus stop. Rounding the corner from his block to MLK, one careless misstep plunged his shiny new loafer into a steaming pile of fairly recent dog excrement, which he discovered only after he had stood a few moments beneath the thin, three-sided shelter with its benches that must be rocked into place for one to sit comfortably, watching the departing figure of the intermittent downtown bus make its way further downtown.
 
 “Aw....shit,” he muttered, only then smelling what was afoul. “Oh no, oh shit, oh what??!” Ledron found a small stick and tried to perch upon the bus shelter’s signature skinny benches, not bothering to rock them into place, sitting instead as was ill-advised, upon the skinny side, and then he set to work wedging the fresh dog poo off his new faux-Italian leather. As he worked, he cursed this neighborhood that he lived in, and would soon be rid of, once he landed this job at the Ethnic Peoples Museum of Oakland and could afford one of those condos in the new upscale minority development downtown--after which he would walk to work. The sudden anger and the ferocity with which he chiseled away at the dog dung which stuck worse than chewing gum was enough to set him off balance, and quickly Ledron Publitzer, nascent chief ethnologist and formal head of research for the Ethnic Peoples Museum of Oakland, found himself butt-first, smack against the pavement, his rear end in the same place his shit-smeared shoe had only recently occupied. 
