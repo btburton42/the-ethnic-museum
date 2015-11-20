@@ -15,11 +15,7 @@ Ledron Publitzer left his house twenty minutes late and ran no less than six ful
 Normally, one did not meet Ledron in this fashion. Were we not flies on the proverbial bus shelter wall, hungering only for excrement, we would indeed witness quite a different picture of “Dr.” Ledron Akumbe (neé Publitzer). 
 Let’s, instead, greet him at work, forgetting all about the dog poo incident. Indeed, facades are what this story is realistically all about, and one can’t glimpse a facade and study it believably if they are busily thinking about the shoddy job of nailing that’s been done on the other side.
 
----
-
-*Six Months Later...*
-
----
+######Six Months Later...
 
 He made it to the museum doors a few minutes after nine. He was pleased to see the light inside, as that meant that Raina was already there and he wouldn’t have to scold her for being late. Across the way, at the recently opened Starbucks, a few whites hung around outside with the looks of buzzards circling some invisible carrion. Ledron sneered into the glass at them and thought about what Jimmy Freed had said. “They might be paying customers.” Yes, true, they might, he thought. For his boss’ sake, and the sake of the museum’s struggling treasury, he would never refuse their ten dollars admission, but also neither would he ever advertise upon the “Community Board” that Freed had said was put up inside with some colored paper flyer. They must come to him. Yes, that must be the way it would happen.
 “Good morning, Dr. Akumbe,” Raina greeted him. She was short, about five-foot-six, and the counter that he’d had built to accommodate his six foot stature perfectly made her look even shorter still. 
