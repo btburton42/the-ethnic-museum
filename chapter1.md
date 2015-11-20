@@ -18,19 +18,35 @@ Let’s, instead, greet him at work, forgetting all about the dog poo incident. 
 ######Six Months Later...
 
 He made it to the museum doors a few minutes after nine. He was pleased to see the light inside, as that meant that Raina was already there and he wouldn’t have to scold her for being late. Across the way, at the recently opened Starbucks, a few whites hung around outside with the looks of buzzards circling some invisible carrion. Ledron sneered into the glass at them and thought about what Jimmy Freed had said. “They might be paying customers.” Yes, true, they might, he thought. For his boss’ sake, and the sake of the museum’s struggling treasury, he would never refuse their ten dollars admission, but also neither would he ever advertise upon the “Community Board” that Freed had said was put up inside with some colored paper flyer. They must come to him. Yes, that must be the way it would happen.
+
 “Good morning, Dr. Akumbe,” Raina greeted him. She was short, about five-foot-six, and the counter that he’d had built to accommodate his six foot stature perfectly made her look even shorter still. 
+
 “Good morning, Raina,” Ledron said, as pleasantly as he could. “Has there been any correspondence?”
-Well-trained, Raina knew to recognize what the good Doctor meant, and pointed him to the back room where they were to lay all deliveries pending his inspection. There, on the metal lab table, a large box stood unopened. Ledron grabbed a box-cutter and bore down. Kwanza wreathes from Brooklyn. He had been aware they were on their way, but looking at them now he felt the same sick feeling in his stomach as he had when Jimmy Freed had informed him of their shipment. Nausea was not uncommon to Ledron. His people’s reaction to the whites’ cultural sensitivity of the past years was a thing of horror in his eyes. Much like a dog that has been beaten will come and lie down beside his aging master who now no longer possessed the strength to beat him, so had his people laid down beside the oppressor and given up their anger for something petty: a seat at the table.
+
+Well-trained, Raina knew to recognize what the good Doctor meant, and pointed him 
+to the back room where they were to lay all deliveries pending his inspection. There, on the metal lab table, a large box stood unopened. Ledron grabbed a box-cutter and bore down. Kwanza wreathes from Brooklyn. He had been aware they were on their way, but looking at them now he felt the same sick feeling in his stomach as he had when Jimmy Freed had informed him of their shipment. Nausea was not uncommon to Ledron. His people’s reaction to the whites’ cultural sensitivity of the past years was a thing of horror in his eyes. Much like a dog that has been beaten will come and lie down beside his aging master who now no longer possessed the strength to beat him, so had his people laid down beside the oppressor and given up their anger for something petty: a seat at the table.
+
 He made himself an espresso. After the Starbucks had moved in next door, Ledron had found that the old drip coffee maker that Freed had left in the back room, and which had up to that point served sufficiently in its purpose, was showing its wear. He imagined that he tasted something off about the coffee that it produced, and so with a bit of the grant money he had ordered a new machine online, at wholesale, using the museum’s non-profit status. Yet this was only after he had snuck, one evening, after closing up all alone, across the street and sampled what this gourmet coffee roaster had to offer. 
+
 Now that he thought of Starbucks, he thought of her, too, his Ashante princess, his black priestess of the high desert, the barista who had pulled him out an espresso and hadn’t even charged him for it on account of his being the director of the little frequented museum across the street. Her name was Ibi and she spoke to him in the pleasant melodic tone of colonial English. Enamored by her beauty, and in love with the way she spoke, the Director of the Ethnic Peoples Museum was abruptly caught tongue-tied. 
+
 “My name is Akumbe,” he said, hearing the heavily false tones of his improvised African accent land squat upon the table like a sack of bush meat.
+
 “Oh,” she said, surprised, “You are African?” Because, indeed, the name meant “king” in a slew of dialects, as our man Ledron was well aware.
+
 “Aren’t we all, sister?” Ledron had intoned, recovering some of his cool, and slowly merging the thickly fake tones into something more sustainable and anonymously academic.
+
 She wrinkled her brow at the question, but soon her face was awash in mirth. “I like that,” she said. “This is what I like about America.” Of course, her being a single woman and he not having a ring upon his beautifully light toned fingers had something to do with it.
+
 “So what do you do over there in your museum?” she asked him.
+
 Ledron covered for himself. He switched on the dialogue he had recited a number of times before, concerning the history, culture and legacy of their people, and the parasitism of the whites which had destroyed all that, leaving the original peoples a handful of out-of-the way patches of land that were better for building casinos than hunting buffalo.
+
 Ibi, being something of a positivist, brushed this all away. “But you have nice moneys for sweaters, ya?”
+
 Ledron had smiled his Dr. Akumbe patented grin of understanding. He then made an excuse about some prior engagement and, with a breath of fresh air, escaped into the night to walk the few blocks to his furnished top-floor condo, where he would light a stick of incense and conjure up her face again for more devious, hormonal reasons.
+
+######---
 
 The noise of children broke through his reminiscence and there was Raina, staring at him from the open doorway. She often looked at him queerly. Some days it was enough for him to want to let her go, but firing her wasn’t in the cards. Who then would he get to replace her? His ad was consistently torn down in the housing project front office, and how many folks had called in regards to the line-item in the New African Herald? Of course he did have stacks of applications from white folks. Imploring, searching diatribes written by a guilty hand. There were kids from The City, from Berkeley, even one from Dublin that wanted to “use this experience to work towards a cultural achievement award.” Why couldn’t his people be so motivated?
 He peered over Raina’s shoulder and took in the crowd. They numbered twenty, maybe thirty, children from the Berkeley magnet school system. He had learned to recognize the district from their ethnic makeup, and while Berkeley and its environs were something of a melting pot of the ethnic dispossessed, there were also more children of the white parochial variety than there would be from San Leandro, which was predominantly Hispanic, or Union City, which was mostly Chinese; plus the kids were always immaculately dressed.
