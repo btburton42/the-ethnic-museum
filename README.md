@@ -9,14 +9,17 @@
 Ledron Publitzer left his house twenty minutes late and ran no less than six full city-size blocks to reach the nearest bus stop. Rounding the corner from his block to MLK, one careless misstep plunged his shiny new loafer into a steaming pile of fairly recent dog excrement, which he discovered only after he had stood a few moments beneath the thin, three-sided shelter with its benches that must be rocked into place for one to sit comfortably, watching the departing figure of the intermittent downtown bus make its way further downtown.
 
 “Aw....shit,” he muttered, only then smelling what was afoul. “Oh no, oh shit, oh what??!” Ledron found a small stick and tried to perch upon the bus shelter’s signature skinny benches, not bothering to rock them into place, sitting instead as was ill-advised, upon the skinny side, and then he set to work wedging the fresh dog poo off his new faux-Italian leather. As he worked, he cursed this neighborhood that he lived in, and would soon be rid of, once he landed this job at the Ethnic Peoples Museum of Oakland and could afford one of those condos in the new upscale minority development downtown--after which he would walk to work. The sudden anger and the ferocity with which he chiseled away at the dog dung which stuck worse than chewing gum was enough to set him off balance, and quickly Ledron Publitzer, nascent chief ethnologist and formal head of research for the Ethnic Peoples Museum of Oakland, found himself butt-first, smack against the pavement, his rear end in the same place his shit-smeared shoe had only recently occupied. 
+
 “Aw, mother dingle fucker...” Ledron exclaimed.
 
 Normally, one did not meet Ledron in this fashion. Were we not flies on the proverbial bus shelter wall, hungering only for excrement, we would indeed witness quite a different picture of “Dr.” Ledron Akumbe (neé Publitzer). 
 Let’s, instead, greet him at work, forgetting all about the dog poo incident. Indeed, facades are what this story is realistically all about, and one can’t glimpse a facade and study it believably if they are busily thinking about the shoddy job of nailing that’s been done on the other side.
 
+---
 
+*Six Months Later...*
 
--> Six Months Later
+---
 
 He made it to the museum doors a few minutes after nine. He was pleased to see the light inside, as that meant that Raina was already there and he wouldn’t have to scold her for being late. Across the way, at the recently opened Starbucks, a few whites hung around outside with the looks of buzzards circling some invisible carrion. Ledron sneered into the glass at them and thought about what Jimmy Freed had said. “They might be paying customers.” Yes, true, they might, he thought. For his boss’ sake, and the sake of the museum’s struggling treasury, he would never refuse their ten dollars admission, but also neither would he ever advertise upon the “Community Board” that Freed had said was put up inside with some colored paper flyer. They must come to him. Yes, that must be the way it would happen.
 “Good morning, Dr. Akumbe,” Raina greeted him. She was short, about five-foot-six, and the counter that he’d had built to accommodate his six foot stature perfectly made her look even shorter still. 
@@ -202,7 +205,6 @@ A few minutes later they bid their farewells, and soon the two Africans were on 
 “What is that supposed to mean? You don’t own a bridge, Wakume. You are delirious. What you need is some good goat soup.”
 “Yes, I think you’re right.” Wakume grinned at her and past her, looking at the dusky city and the buildings which had all been erected going on one hundred years ago. “I think I’m going to like this country,” he said. “There is so much promise here.”
 “Let’s hope so,” Ibi chuckled, “After what you did in Lagos, I don’t think they want you back in Nigeria.”
-
 
 
 
@@ -215,6 +217,9 @@ A few minutes later they bid their farewells, and soon the two Africans were on 
 
 
 
+
+
+---
 
 
 
@@ -223,4 +228,3 @@ You can find me on Facebook, or check out http://morepeoplelikeus.tumblr.com
 
 Thanks for reading. 
 Such labors would be pointless without your enjoyment of them.
-
