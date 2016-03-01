@@ -1,5 +1,5 @@
 # Summary
 
 * [Introduction](README.md)
-* [story](story.md)
+* [The Ethnic Museum](story.md)
 
