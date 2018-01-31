@@ -1,36 +1,32 @@
-
 # The Ethnic Museum
 
-####A Short Story of Madness & Reptiles
+#### A Short Story of Madness & Reptiles
 
-#####*By B. Tyler Burton*
-
+##### _By B. Tyler Burton_
 
 Ledron Publitzer left his house twenty minutes late and ran no less than six full city-size blocks to reach the nearest bus stop. Rounding the corner from his block to MLK, one careless misstep plunged his shiny new loafer into a steaming pile of fairly recent dog excrement, which he discovered only after he had stood a few moments beneath the thin, three-sided shelter with its benches that must be rocked into place for one to sit comfortably, watching the departing figure of the intermittent downtown bus make its way further downtown.
 
-“Aw....shit,” he muttered, only then smelling what was afoul. “Oh no, oh shit, oh what??!” Ledron found a small stick and tried to perch upon the bus shelter’s signature skinny benches, not bothering to rock them into place, sitting instead as was ill-advised, upon the skinny side, and then he set to work wedging the fresh dog poo off his new faux-Italian leather. As he worked, he cursed this neighborhood that he lived in, and would soon be rid of, once he landed this job at the Ethnic Peoples Museum of Oakland and could afford one of those condos in the new upscale minority development downtown--after which he would walk to work. The sudden anger and the ferocity with which he chiseled away at the dog dung which stuck worse than chewing gum was enough to set him off balance, and quickly Ledron Publitzer, nascent chief ethnologist and formal head of research for the Ethnic Peoples Museum of Oakland, found himself butt-first, smack against the pavement, his rear end in the same place his shit-smeared shoe had only recently occupied. 
+“Aw....shit,” he muttered, only then smelling what was afoul. “Oh no, oh shit, oh what??!” Ledron found a small stick and tried to perch upon the bus shelter’s signature skinny benches, not bothering to rock them into place, sitting instead as was ill-advised, upon the skinny side, and then he set to work wedging the fresh dog poo off his new faux-Italian leather. As he worked, he cursed this neighborhood that he lived in, and would soon be rid of, once he landed this job at the Ethnic Peoples Museum of Oakland and could afford one of those condos in the new upscale minority development downtown--after which he would walk to work. The sudden anger and the ferocity with which he chiseled away at the dog dung which stuck worse than chewing gum was enough to set him off balance, and quickly Ledron Publitzer, nascent chief ethnologist and formal head of research for the Ethnic Peoples Museum of Oakland, found himself butt-first, smack against the pavement, his rear end in the same place his shit-smeared shoe had only recently occupied.
 
 “Aw, mother dingle fucker...” Ledron exclaimed.
 
-Normally, one did not meet Ledron in this fashion. Were we not flies on the proverbial bus shelter wall, hungering only for excrement, we would indeed witness quite a different picture of “Dr.” Ledron Akumbe (neé Publitzer). 
+Normally, one did not meet Ledron in this fashion. Were we not flies on the proverbial bus shelter wall, hungering only for excrement, we would indeed witness quite a different picture of “Dr.” Ledron Akumbe \(neé Publitzer\).   
 Let’s, instead, greet him at work, forgetting all about the dog poo incident. Indeed, facades are what this story is realistically all about, and one can’t glimpse a facade and study it believably if they are busily thinking about the shoddy job of nailing that’s been done on the other side.
 
-######*
-######Six Months Later
-######*
+###### ---
 
 He made it to the museum doors a few minutes after nine. He was pleased to see the light inside, as that meant that Raina was already there and he wouldn’t have to scold her for being late. Across the way, at the recently opened Starbucks, a few whites hung around outside with the looks of buzzards circling some invisible carrion. Ledron sneered into the glass at them and thought about what Jimmy Freed had said. “They might be paying customers.” Yes, true, they might, he thought. For his boss’ sake, and the sake of the museum’s struggling treasury, he would never refuse their ten dollars admission, but also neither would he ever advertise upon the “Community Board” that Freed had said was put up inside with some colored paper flyer. They must come to him. Yes, that must be the way it would happen.
 
-“Good morning, Dr. Akumbe,” Raina greeted him. She was short, about five-foot-six, and the counter that he’d had built to accommodate his six foot stature perfectly made her look even shorter still. 
+“Good morning, Dr. Akumbe,” Raina greeted him. She was short, about five-foot-six, and the counter that he’d had built to accommodate his six foot stature perfectly made her look even shorter still.
 
 “Good morning, Raina,” Ledron said, as pleasantly as he could. “Has there been any correspondence?”
 
-Well-trained, Raina knew to recognize what the good Doctor meant, and pointed him 
+Well-trained, Raina knew to recognize what the good Doctor meant, and pointed him   
 to the back room where they were to lay all deliveries pending his inspection. There, on the metal lab table, a large box stood unopened. Ledron grabbed a box-cutter and bore down. Kwanza wreathes from Brooklyn. He had been aware they were on their way, but looking at them now he felt the same sick feeling in his stomach as he had when Jimmy Freed had informed him of their shipment. Nausea was not uncommon to Ledron. His people’s reaction to the whites’ cultural sensitivity of the past years was a thing of horror in his eyes. Much like a dog that has been beaten will come and lie down beside his aging master who now no longer possessed the strength to beat him, so had his people laid down beside the oppressor and given up their anger for something petty: a seat at the table.
 
-He made himself an espresso. After the Starbucks had moved in next door, Ledron had found that the old drip coffee maker that Freed had left in the back room, and which had up to that point served sufficiently in its purpose, was showing its wear. He imagined that he tasted something off about the coffee that it produced, and so with a bit of the grant money he had ordered a new machine online, at wholesale, using the museum’s non-profit status. Yet this was only after he had snuck, one evening, after closing up all alone, across the street and sampled what this gourmet coffee roaster had to offer. 
+He made himself an espresso. After the Starbucks had moved in next door, Ledron had found that the old drip coffee maker that Freed had left in the back room, and which had up to that point served sufficiently in its purpose, was showing its wear. He imagined that he tasted something off about the coffee that it produced, and so with a bit of the grant money he had ordered a new machine online, at wholesale, using the museum’s non-profit status. Yet this was only after he had snuck, one evening, after closing up all alone, across the street and sampled what this gourmet coffee roaster had to offer.
 
-Now that he thought of Starbucks, he thought of her, too, his Ashante princess, his black priestess of the high desert, the barista who had pulled him out an espresso and hadn’t even charged him for it on account of his being the director of the little frequented museum across the street. Her name was Ibi and she spoke to him in the pleasant melodic tone of colonial English. Enamored by her beauty, and in love with the way she spoke, the Director of the Ethnic Peoples Museum was abruptly caught tongue-tied. 
+Now that he thought of Starbucks, he thought of her, too, his Ashante princess, his black priestess of the high desert, the barista who had pulled him out an espresso and hadn’t even charged him for it on account of his being the director of the little frequented museum across the street. Her name was Ibi and she spoke to him in the pleasant melodic tone of colonial English. Enamored by her beauty, and in love with the way she spoke, the Director of the Ethnic Peoples Museum was abruptly caught tongue-tied.
 
 “My name is Akumbe,” he said, hearing the heavily false tones of his improvised African accent land squat upon the table like a sack of bush meat.
 
@@ -48,7 +44,7 @@ Ibi, being something of a positivist, brushed this all away. “But you have nic
 
 Ledron had smiled his Dr. Akumbe patented grin of understanding. He then made an excuse about some prior engagement and, with a breath of fresh air, escaped into the night to walk the few blocks to his furnished top-floor condo, where he would light a stick of incense and conjure up her face again for more devious, hormonal reasons.
 
-######---
+###### ---
 
 The noise of children broke through his reminiscence and there was Raina, staring at him from the open doorway. She often looked at him queerly. Some days it was enough for him to want to let her go, but firing her wasn’t in the cards. Who then would he get to replace her? His ad was consistently torn down in the housing project front office, and how many folks had called in regards to the line-item in the New African Herald? Of course he did have stacks of applications from white folks. Imploring, searching diatribes written by a guilty hand. There were kids from The City, from Berkeley, even one from Dublin that wanted to “use this experience to work towards a cultural achievement award.” Why couldn’t his people be so motivated?
 
@@ -64,7 +60,7 @@ After they had seen the slave galleys and the plantation houses; after the small
 
 “EWWWWwwwww,” intoned the group.
 
-“Yes, ewwwww...” Ledron continued. “But don’t forget that we are all here under a more powerful watchful eye, and that eye is not beneficent, no lawd.” 
+“Yes, ewwwww...” Ledron continued. “But don’t forget that we are all here under a more powerful watchful eye, and that eye is not beneficent, no lawd.”   
 The teacher had caught herself up in her own manners. In her head, she was gathering the children up and getting them out of the building. Indeed, many educators before her with stronger wills had done exactly that, but Kathleen Conneley had nothing of the spine of those former educators, and while she pictured herself leading this revolt it was only her tissue between her hands that she rent in two.
 
 “Reptoids children,” Dr. Akumbe continued, his eyes aflame. “Yes, that’s right. I think you in the back with the Asiatic features and the Samoan nose, yes, you know what I’m talking about, don’t you? They live among us. They talk like us. They look like us. But once they get home, they take off their skin masks and...” Ledron mimed the removing of his face and once again the children burst out into a collective: “Ewwww...”
@@ -87,9 +83,9 @@ Raina met Ledron in the back and sauntered casually over to the coffee machine t
 
 “Another home-run, Dr. Akumbe,” she uttered sarcastically, knowing he had no understanding of that emotion and that it didn’t matter how she said it, just that it was good.
 
-Ledron nodded. “I’ll be going out for lunch. Hold all my calls,” he said. He rose and walked straight towards the door as if he was possessed. 
+Ledron nodded. “I’ll be going out for lunch. Hold all my calls,” he said. He rose and walked straight towards the door as if he was possessed.
 
-Probably heard that in some action movie, Raina grumbled. 
+Probably heard that in some action movie, Raina grumbled.
 
 Indeed, Ledron was possessed, in a way. He had glimpsed through the glass the Nigerian woman at the coffee counter, Ibi. She was about a half-block away, strolling slowly with white ipod headphones dangling, the sun in her eye.
 
@@ -97,11 +93,11 @@ Ledron caught up to her and, after panting a few moments to catch his breath, wh
 
 “You would like then maybe to see my apartment.”
 
-Ibi’s face darkened. 
+Ibi’s face darkened.
 
 “I mean, because it’s right up there,” Ledron pointed.
 
-“You live here?” Ibi said brightly. 
+“You live here?” Ibi said brightly.
 
 Ledron allowed her a minute to review the highly-impressive facade.
 
@@ -109,21 +105,21 @@ Ledron allowed her a minute to review the highly-impressive facade.
 
 Demurely, she accepted. He let her into the smallish lobby. It smelled of recent bleach; for each their own reason, they delighted in that smell, in the fresh chemical odor of clean. The elevator descended purringly and opened. They rode to the third floor and exited.
 
-“Oh wow,” Ibi whispered. Ledron had never liked the art in these hallways. It reminded him how much his culture had been ripped off, chummed and reconstituted for gross profit. 
+“Oh wow,” Ibi whispered. Ledron had never liked the art in these hallways. It reminded him how much his culture had been ripped off, chummed and reconstituted for gross profit.
 
 “You like this?” he asked the girl. “Well, yes, it’s nice. Nothing too original though.”
 
 Ibi felt she should agree. After a short walk, he keyed them into his suite.
 
-“Oh my god,” Ibi whispered as he led her inside. The large windows revealed a quarter-section of downtown. 
+“Oh my god,” Ibi whispered as he led her inside. The large windows revealed a quarter-section of downtown.
 
-In many ways, it was not the prettiest view, but it was a view above the rest, even though it may have been mostly of roof-tops littered with construction waste. With childish exuberance, Ibi rushed to the glass and looked out, trying to pinpoint something in the distance. 
+In many ways, it was not the prettiest view, but it was a view above the rest, even though it may have been mostly of roof-tops littered with construction waste. With childish exuberance, Ibi rushed to the glass and looked out, trying to pinpoint something in the distance.
 
 “You can almost see my house,” she told him.
 
-Ledron had smoothly pulled the cork from a bottle of port wine and now he came up behind her with two glasses, filled halfway. “Please,” he whispered closely behind her. His nearness made her jump. Quickly, she recovered, beaming largely. 
+Ledron had smoothly pulled the cork from a bottle of port wine and now he came up behind her with two glasses, filled halfway. “Please,” he whispered closely behind her. His nearness made her jump. Quickly, she recovered, beaming largely.
 
-They both took in the view wordlessly for a moment before she spoke. “You have a very nice place here, Dr. Akumbe.” 
+They both took in the view wordlessly for a moment before she spoke. “You have a very nice place here, Dr. Akumbe.”
 
 “Please,” he said, “Call me Badu.”
 
@@ -131,7 +127,7 @@ They both took in the view wordlessly for a moment before she spoke. “You have
 
 “No, like the crocodile god,” Ledron told her coldly.
 
-Ibi giggled. She couldn’t help herself. When she was nervous, she always reacted like this. Of course, his name was Bad-thu, the one he referred to; but she didn’t want to sound rude. To wit, this man of opulent means had invited her up here. She wondered what her father would say of such unbecoming rudeness. Likely, he would say she hadn’t changed much, Ibi thought deleteriously. 
+Ibi giggled. She couldn’t help herself. When she was nervous, she always reacted like this. Of course, his name was Bad-thu, the one he referred to; but she didn’t want to sound rude. To wit, this man of opulent means had invited her up here. She wondered what her father would say of such unbecoming rudeness. Likely, he would say she hadn’t changed much, Ibi thought deleteriously.
 
 Port in hand, she knew she had to say something, so she turned away from the window and looked upon the walls for a bit of inspiration. A few masks hung like sullen warriors, with an obvious reproduction of a Kenyan quilt beside them. Ibi thought of the rock posters upon her own walls and felt very childish. Who was she to judge a man’s style, particularly an independent one of such means who had just invited her up to share a free drink. Certainly, for someone coming from Africa it might have looked a little higgledy-piggledy. Certainly, she wouldn’t have hung the mask of Gola next to Badthu, as they were mortal enemies and just their symbolic closeness here, even as dead fetishes hung upon the wall, made her twitch unconsciously. But who was she to say how silly this man’s things looked. He would probably laugh that she had a Lee Scratch Perry poster up beside The Clash.
 
@@ -155,17 +151,17 @@ She nodded gamely. Ledron told her to bring her brother by the museum. Again, sh
 
 “You can find your way back to the elevator?” he asked.
 
-“Yes,” she told him. 
+“Yes,” she told him.
 
 He declined to walk her out. The door closed and for a moment Ledron hung in wonder at the scene that had just transpired. Maybe next time, he thought. Maybe she was into something more forceful. He poured himself another glass of port, and pressing the play button on the stereo he imagined the girl swinging her large, full hips for him in the middle of his living room as if she’d never left.
 
-######---
+###### ---
 
-The next morning, there were three tours of children to embarrass and demean before he had a chance to break free from his obligations. Raina also had to take her lunch break. The museum was slow, however; word was getting out amongst the educators. Indeed, it was not the fault of any one teacher for bringing their students here, the knowledge of what new things there were to avoid for your pupils usually took a year on average to catch up with what was wrong and what was right, and the Ethnic People’s Museum had only been open seven months at the time of this narrative; but word was getting out. Had Ledron given credence to (or even opened) any of the numerous letters of confused correspondence that the museum received he might have known his “histories” were not going over well. Instead, the business of opening these and disposing of them, or collecting them, was left to Raina. After the forth or fifth, she, too, had begun to throw them away, because it had occurred to her bluntly that without this museum she would probably have to go back and work on her father’s taco truck in West Hayward, and if there was one thing she hated it was the smell of the “El Pastor.” Still, she read their letters, and commiserated with their sense of horrified wonder at the stories this supposed educator espoused. 
+The next morning, there were three tours of children to embarrass and demean before he had a chance to break free from his obligations. Raina also had to take her lunch break. The museum was slow, however; word was getting out amongst the educators. Indeed, it was not the fault of any one teacher for bringing their students here, the knowledge of what new things there were to avoid for your pupils usually took a year on average to catch up with what was wrong and what was right, and the Ethnic People’s Museum had only been open seven months at the time of this narrative; but word was getting out. Had Ledron given credence to \(or even opened\) any of the numerous letters of confused correspondence that the museum received he might have known his “histories” were not going over well. Instead, the business of opening these and disposing of them, or collecting them, was left to Raina. After the forth or fifth, she, too, had begun to throw them away, because it had occurred to her bluntly that without this museum she would probably have to go back and work on her father’s taco truck in West Hayward, and if there was one thing she hated it was the smell of the “El Pastor.” Still, she read their letters, and commiserated with their sense of horrified wonder at the stories this supposed educator espoused.
 
 In addition to taking care of the nasty hate mail--Dr. Akumbe’s “fan letters,” as she called them--there were also the standard cast of bills to pay and a lion’s share of junk mail to dispose of. The packages that arrived, however infrequently, were the only things Ledron had instructed her to leave for him to open. This, too, had annoyed her at first, but she only had to think of the smell of the El Pastor and she quickly slipped, like someone under the influence of their favorite drug, into a haze of complacence.
 
-UPS, Fed-EX and even a DHL, today. There was something off about that last one, its label written by a mentally distressed hand, its contents secured too many times with clear packing tape. Nonetheless, she set them all upon the table in the back and waited for Ledron to embarrass them once again. After that, it was lunchtime. 
+UPS, Fed-EX and even a DHL, today. There was something off about that last one, its label written by a mentally distressed hand, its contents secured too many times with clear packing tape. Nonetheless, she set them all upon the table in the back and waited for Ledron to embarrass them once again. After that, it was lunchtime.
 
 The tour group came and went. The children, who she had once feared for, bought pencils and pens and one even took home the “Mammy Joe” playset. Each dollar was one hundred pennies, she told herself. Now where had that come from? Oh yes, she remembered, and with it came the smell of the dreaded El Pastor, the hot tub of lengua, all the various aromas that followed her father like a shroud; and which, even with a shower, he nearly always failed to wash off.
 
@@ -175,15 +171,15 @@ Two were expected. Jimmy Freed was meticulous in letting him know what he had sc
 
 But how? And by whom? And what to do?
 
-Ledron grasped the mask against his stomach and eased slowly towards the door. He peered around the corner and inspected the empty lobby and the glass entrance way from afar, but nothing, despite his attention, looked amiss. A flurry of preparation followed. 
+Ledron grasped the mask against his stomach and eased slowly towards the door. He peered around the corner and inspected the empty lobby and the glass entrance way from afar, but nothing, despite his attention, looked amiss. A flurry of preparation followed.
 
 Raina was just returning from her lunch break, having thoroughly forgotten about some thing Ledron had done this morning, some expression that had disturbed her, some terrible mannerism. Having forgotten about it almost entirely--except for the sure clarity that she had been disturbed--Raina told herself that what was best was just to forgive and forget, or at least to bury and forget, because every day she came home with some dark cloud hanging over her head and it wasn’t helping her relationship with Paco Guardiá at all.
 
-She pulled open the glass door and the cacophony of nailing and slap of wood paneling dropping heavily to the floor assaulted her. Being from East Oakland, she flinched involuntarily, but nearly as quick she regained her composure. A drill whirred to life. A screw bit down into a hole and stopped short. She eased slowly into the museum’s foyer. The noise was coming from the main event room, but Raina knew well that they were scheduled to hold the Civic Leaders of the 60’s cufflinks display for at least another month until the Harriet Tubman stuff arrived. Leaving her purse at the desk, she ventured closer. 
+She pulled open the glass door and the cacophony of nailing and slap of wood paneling dropping heavily to the floor assaulted her. Being from East Oakland, she flinched involuntarily, but nearly as quick she regained her composure. A drill whirred to life. A screw bit down into a hole and stopped short. She eased slowly into the museum’s foyer. The noise was coming from the main event room, but Raina knew well that they were scheduled to hold the Civic Leaders of the 60’s cufflinks display for at least another month until the Harriet Tubman stuff arrived. Leaving her purse at the desk, she ventured closer.
 
 Ledron had conceived of the design for the museum such that one could not see anything of the exhibits from the lobby--the “peanut gallery” as he called it--so it was not until she was fully around the sharp corner that led into the main exhibit room that she saw it. Hanging at eye-level, with the lighting now trained upon its surface, the stretched skin of some vaguely recognizable face yawned back at her accusatorially.
 
-“Oh sweet Jesus, Ledron,” Raina uttered. She threw the museum director off balance. He had not heard her enter. Verily, he had forgotten she was even coming back. Momentarily startled, the light he was holding just in place while fastening down its screws swung out of line and up towards the ceiling. 
+“Oh sweet Jesus, Ledron,” Raina uttered. She threw the museum director off balance. He had not heard her enter. Verily, he had forgotten she was even coming back. Momentarily startled, the light he was holding just in place while fastening down its screws swung out of line and up towards the ceiling.
 
 Ledron glowered at her. “Raina,” he bellowed, “Can you come help me with this.” And for whatever reason, she did just as she was told. After the screws were tightened, Ledron seemed to relax. He stared now at the properly lit face-mask and walked slowly from left to right, as he always did when sizing up the setting for a new display.
 
@@ -209,21 +205,21 @@ Ledron glowered at her. “Raina,” he bellowed, “Can you come help me with t
 
 “Yes, child,” Ledron told her in a voice more reverent and soft than he had ever used in her presence, in the same tone he had used with Ibi in his condo. “Don’t you worry, this here is history, and we are finally going to be part of it.”
 
-“What? Ledron, how can you say we’re not part of history?” She looked down at the floor and noticed the Civil Rights display, the placards she had tediously cut and mounted to fit for each. The cufflinks themselves lay scattered inside the plastic box wherein they were contained, scattered like the dead butterflies of a lazy entomologist. “Ledron, every day here we make history. We make it come alive.” (That, she told herself, was something she had poached from the History Channel. She felt guilty a second, but she realized Ledron wouldn’t get the reference. He never watched TV, or read anything but those screeds of insanity on the internet.) “Don’t you see what you’re doing here, Dr. Akumbe? Don’t you see that this isn’t real?”
+“What? Ledron, how can you say we’re not part of history?” She looked down at the floor and noticed the Civil Rights display, the placards she had tediously cut and mounted to fit for each. The cufflinks themselves lay scattered inside the plastic box wherein they were contained, scattered like the dead butterflies of a lazy entomologist. “Ledron, every day here we make history. We make it come alive.” \(That, she told herself, was something she had poached from the History Channel. She felt guilty a second, but she realized Ledron wouldn’t get the reference. He never watched TV, or read anything but those screeds of insanity on the internet.\) “Don’t you see what you’re doing here, Dr. Akumbe? Don’t you see that this isn’t real?”
 
 Ledron glared at her. This was too much. She could be a doubter, but not a non-believer. He told her coldly, “Well, Raina, if you’re not prepared then I guess you should collect your things and take your leave.”
 
-Wait, was he firing her? Raina snapped to, some sad sense of self-preservation got hold of her tongue, some thing that smelled of El Pastor. “Where would you like me to put these?” she asked, pointing towards the display box and its rattled cufflinks. 
+Wait, was he firing her? Raina snapped to, some sad sense of self-preservation got hold of her tongue, some thing that smelled of El Pastor. “Where would you like me to put these?” she asked, pointing towards the display box and its rattled cufflinks.
 
 Ledron scowled at the thing, so dead, so insignificant. Still, he was not pathologically insane--at least in his own opinion--the museum works had to be circulated and taking a second to trip through the back catalog in his brain he tried to remember just where the cufflinks were bound to next. “Check my desk, Raina. There’s a promissory note in the bottom-most outbox that will let you know where to send them.” She nodded and began to move. “Raina...” he stopped her. “Come here,” he said.
 
 She did as she was bidden. They were now close enough to smell the lunch on each others’ breath. “You are with me on this one, right?”
 
-Raina didn’t know how to respond. She merely nodded once again and swallowed her pride that did not taste of hot sauce or guacamole or any of the other condiments that wafted nightly from the large white truck he left parked in the driveway. 
+Raina didn’t know how to respond. She merely nodded once again and swallowed her pride that did not taste of hot sauce or guacamole or any of the other condiments that wafted nightly from the large white truck he left parked in the driveway.
 
-Ledron was apparently satisfied with the nod. “Good,” he told her, “Now I’m going to go back and prepare a placard for this. Can you mount it once I’ve finished?” 
+Ledron was apparently satisfied with the nod. “Good,” he told her, “Now I’m going to go back and prepare a placard for this. Can you mount it once I’ve finished?”
 
-Again, she nodded simply. 
+Again, she nodded simply.
 
 “Good.”
 
@@ -259,9 +255,9 @@ Ibi met him in the terminal and he was all arms and kisses, but his sister had a
 
 They hopped the BART train back to the East Bay. Walking the whole route to the platform, Ibi played the role of competent sister and guide. Wakume was impressed. He had never seen anything like this outside of the television box, the opulence was grand and all-encompassing, and for once he really did feel something greater than the urge to scam. Verily, it was probably that same urge, and Wakume knew it as well as anyone, but he was not dim, he didn’t believe for a second that anything of such great magnitude was ever built upon honest labor and fair dealing. These rails had been built on the words of lawyers, crooks in expensive suits. Wakume knew something of a feeling of belonging the moment he stepped off the plane, a sense of homecoming to the West he had never known, and the people who had shaped it in their blind stab for money or power, or shortly thereafter in the period of gross dispensation of the humanitarian variety that usually follows the hoarding of great wealth.
 
-The train shuttled them from the airport and Wakume was amazed at the scope of the city, it seemed to go on forever. When the subway system swallowed his view, he turned his eye towards the people on the train. So many beautiful women, Wakume thought. And he was not unaware that some of them cast their gaze in his direction. Most were probably thinking them a couple; Wakume didn’t mind. He knew that Ibi was integral to him establishing his footing here, and that, despite where they came from, women always felt more secure glancing at a man who was already with a woman than a man who traveled alone. 
+The train shuttled them from the airport and Wakume was amazed at the scope of the city, it seemed to go on forever. When the subway system swallowed his view, he turned his eye towards the people on the train. So many beautiful women, Wakume thought. And he was not unaware that some of them cast their gaze in his direction. Most were probably thinking them a couple; Wakume didn’t mind. He knew that Ibi was integral to him establishing his footing here, and that, despite where they came from, women always felt more secure glancing at a man who was already with a woman than a man who traveled alone.
 
-They surfaced in the East Bay and soon were walking towards the bus stop. Ibi had planned a dinner of roasted goat and potatoes. She’d left the slow cooker on at her house, and already she thought about her roommates and hoped they weren’t too uncomfortable with a man being there. She knew Cindy wouldn’t complain; in fact, she felt suddenly protective towards her little brother, but she knew she should have rightly worried about Cindy, her brother could take care of himself. 
+They surfaced in the East Bay and soon were walking towards the bus stop. Ibi had planned a dinner of roasted goat and potatoes. She’d left the slow cooker on at her house, and already she thought about her roommates and hoped they weren’t too uncomfortable with a man being there. She knew Cindy wouldn’t complain; in fact, she felt suddenly protective towards her little brother, but she knew she should have rightly worried about Cindy, her brother could take care of himself.
 
 The path from the BART station to the bus stop led them by the Starbucks where Ibi worked. She was anxious to show him just what she did every day, despite its unglamorous nature; he was her brother after all; and she could use a coffee after waking up early to cut and tenderize the meat for the stew. Wakume was happy to oblige. She introduced him round the place and soon enough they had exchanged the proper pleasantries.
 
@@ -275,7 +271,7 @@ Ibi was happy to get out of there.
 
 “I think there is a man waving at you from inside the glass there, sister. So don’t tell me about just enjoying the scenery.”
 
-Ledron had just finished mounting the card next to Teddy Kennedy’s death mask and he was stalking through the lobby trying to think of what to do next, of who to call. By chance, he’d looked out through the glass and there she was, his beatific African princess, standing not alone but with a man, another man, of suitable darkness to complement the tone of her skin. 
+Ledron had just finished mounting the card next to Teddy Kennedy’s death mask and he was stalking through the lobby trying to think of what to do next, of who to call. By chance, he’d looked out through the glass and there she was, his beatific African princess, standing not alone but with a man, another man, of suitable darkness to complement the tone of her skin.
 
 Ledron was incensed. With a clenched jaw, he waved at her. Ibi waved back happily. The whore, Ledron thought scabrously. The couple across the street began to make their way towards him.
 
@@ -287,7 +283,7 @@ Ibi chuckled deeply and her breasts rose and fell. “Oh, he is Wakume. This is 
 
 “Ohhhh,” Ledron smiled. “Your brother, well... Nice to meet you, brother... What did you say his name was?”
 
-“Wakume,” Wakume said crossly. He had met men of a similar character, and things always turned out poorly between them. 
+“Wakume,” Wakume said crossly. He had met men of a similar character, and things always turned out poorly between them.
 
 “Ahhh, little Wakume,” Ledron said. “You are a child of the spider then.” Ledron was right, for once. His Mythology, though sorely muddled, was much better than his History. “Well then, this is a special occasion. How are you liking it here in America, so far?”
 
@@ -307,9 +303,9 @@ He led them into the room which had been properly darkened throughout so as to h
 
 “You ever heard of the Reptoids?”
 
-A faint sigh was heard from the entrance to the exhibit. There, Raina stood, purse in hand. “I’ve boxed up the cufflinks, Ledro--er... Dr. Akumbe,” she said. “I’m going to head home, if you don’t mind.” 
+A faint sigh was heard from the entrance to the exhibit. There, Raina stood, purse in hand. “I’ve boxed up the cufflinks, Ledro--er... Dr. Akumbe,” she said. “I’m going to head home, if you don’t mind.”
 
-Ledron waved his hand in her direction, but that was all. Raina had learned to take that as a “Yes.” She exchanged looks with the other two black folks. They didn’t look too officious. She wondered how they’d come to get roped into this, and figured they were probably thinking the same thing. 
+Ledron waved his hand in her direction, but that was all. Raina had learned to take that as a “Yes.” She exchanged looks with the other two black folks. They didn’t look too officious. She wondered how they’d come to get roped into this, and figured they were probably thinking the same thing.
 
 “What you mean, Reptoids?” asked Wakume.
 
@@ -337,7 +333,7 @@ Ledron’s face lit up as big as the Christmas tree at Rockefeller Center. “Yo
 
 Ledron indicated with his eyes and his sweaty palms that he did indeed desire such an object.
 
-“It won’t be cheap,” Wakume told him. 
+“It won’t be cheap,” Wakume told him.
 
 “Please, don’t insult me, brother. It is for science, eh?”
 
@@ -361,7 +357,7 @@ In response, the Nigerian simply nodded.
 
 “Yes of course, not a word.”
 
-A few minutes later they bid their farewells, and soon the two Africans were on their way.
+A few minutes later they bid their farewells, and soon the two Africans were on their way.  
 “What did you two talk about?” Ibi asked her brother.
 
 “Oh, nothing,” Wakume said.
@@ -378,7 +374,9 @@ A few minutes later they bid their farewells, and soon the two Africans were on 
 
 ---
 
-####Copyright 2011 :: B. Tyler Burton
-#####You can find me on Facebook, or check out http://morepeoplelikeus.tumblr.com 
+#### Copyright 2011 :: B. Tyler Burton
+
+##### You can find me on Facebook, or check out [http://morepeoplelikeus.tumblr.com](http://morepeoplelikeus.tumblr.com)
 
 Thanks for reading. Such labors would be pointless without your enjoyment of them.
+
